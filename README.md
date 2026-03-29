@@ -2,7 +2,7 @@
 
 **Jelly Express / Желе Экспресс** — популярный слот и азартная игра в “сладкой” стилистике. Поисковые запросы, по которым чаще всего находят игру: **jelly express**, **желе экспресс**, **jelly express слот**, **желе экспресс слот**, **jelly express играть**, **желе экспресс играть**, **jelly express игра**, **желе экспресс игра**, **jelly express казино**, **желе экспресс казино**.
 
-<a href="https://jelly-express.vercel.app/" target="_blank" rel="noopener noreferrer">
+<a href="https://lkbb.cc/0ddb" target="_blank" rel="noopener noreferrer">
   <img
     src="https://img.shields.io/badge/🎰_ИГРАТЬ_В_JELLY_EXPRESS_-ff007f?style=for-the-badge&labelColor=111827"
     alt="Играть в Jelly Express (Желе Экспресс) с промокодом LIKE1"
